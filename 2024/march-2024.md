@@ -1,0 +1,5 @@
+## march 12
+
+Well, hello there! It's been a while. 😊 A lot has changed. I, for one, am in a different country and continent now for a year and a month already! Wow, who would have thought that I would be living outside my home country. Haha! Never in my wildest dreams, but hey, you don't know where God will take you if you surrender your life to Him, eh? To think that I was so scared of surrendering every single thing to Him before because I thought "anything can happen 😢" (read it with an overwhelmingly anxious voice). But now, here I am, I have fully surrendered everything to Jesus - my future, my career... everything! With my whole life in the palm of His hands, I can now confidently say "anything can happen 🍃" with an anxiety-free, hopeful tone.
+
+How about you, how are you? How have things been? I hope they're looking up. 😊 Forgive me if I keep on talking, it's my blog anyway. Haha! 😁 I wish I can go on and on here, but I have things to do, places to be, and promises to keep. See you around then! 👋🏻
