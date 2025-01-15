@@ -16,3 +16,15 @@ I tried remembering the title for years, but I failed. Not until recently when m
 "Remember the older film where a witch trapped a girl in a painting and her family watched her age in the painting but never saw her move and then eventually she disappeared from (sic) it 'cause she died? That shit still scares me."
 
 Yep, it is the exact same book. Cruel magic and all.
+
+
+## 15 January
+
+I went to work for Annette at CQU yesterday.
+
+Yes, I know my contract expired last December, and I wasn't expecting to be back again in that office, but here's how it happened. Last week, when Ken and I were on our way home from the additional visa medical appointment visit, Annette sent me part of a group message, I suppose. She asked "us" if we were available for a job that week. Seeing that Ken and I still had a lot to manage this week, especially with the necessary documents that Engineers Australia asked of us, I politely told her that I was sorry; I was not available for the week. To which she empathized, but she immediately added if I was interested in taking a shift Tuesday next week. Knowing that I was tired and worked up from the medical visits and the difficult bureaucracy of the Philippines, I took a second to pause and ponder before responding to Annette.
+
+Honestly, I do not look forward to going back to CQU's office, now that I have already bid goodbye to all our co-workers and staff. I also am in need of a refresh; I want a new start. Having to do administrative tasks was a blessing while I was head-butting through my master's degree, but now that I'm finished, I want a sense of corporate normalcy—I want to go back into the industry. However, seeing the status of how my job search is going, I decided that maybe it's good to have any job at the moment. This might be a blessing in disguise; I get to have a job that cushions me while looking for a job that I want. We were on our last train home when I replied with my positive interest to Annette but brought up the case with my contract. She sealed the deal when she said she had extended it and hoped to see me on Tuesday morning.
+
+And that, my friends, is how I got the job again. I don't care if it's temporary until they find our replacement; I am glad to have something that helps us with our finances while finding a job here in Sydney—or anywhere in Australia, actually.
+
